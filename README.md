@@ -2,4 +2,4 @@
 just learning 
 
 
-I am new tothis and trying to learn to better my self and get better job.
+I am new to this and trying to learn to better my self and get better job.
